@@ -1,1 +1,1 @@
-https://github.com/rockstar10mp
+[GitHub](https://github.com/rockstar10mp)
