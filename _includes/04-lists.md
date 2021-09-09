@@ -1,4 +1,4 @@
-* Music
-* Marvel
-* JoJo's Bizarre Adventure
-* Video Games
+* **Music**
+* *Marvel*
+* *JoJo's Bizarre Adventure*
+* **Video Games**
